@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @WhereisGentrix
+- 👀 I’m interested in Gaming and Tweaking Windows 10
+- 🌱 I’m currently learning C++
+- 💞️ I’m looking to collaborate with other ppl
+- 📫 You can reach me on discord
+- 🐱‍🏍 My discord is:WhereisGumis#3374
